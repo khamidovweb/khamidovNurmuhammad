@@ -1,1 +1,1 @@
-# khamidovNurmuhammad
+Hi, i'm khamidov Nurmuhammad <img src"https://media0.giphy.com/media/w1OBpBd7kJqHrJnJ13/giphy.gif?cid=ecf05e47jqmnu4nw3l0khr0aemaseeiyz6kwq16bukbono9x&ep=v1_stickers_search&rid=giphy.gif&ct=s" width="50px">
